@@ -47,7 +47,13 @@ https://listas.pontofrio.com.br/martaeluiz
 
 Contamos com a sua presença❤️
 
+*OBS: Talvez seja necessário salvar o contato para conseguir acessar os endereços acima.*
+
 --------------------------------------------------------
+
+Você está cordialmente convidado para...
+
+*NOSSO CASAMENTO!*
 
 *Marta & Luiz* 💍🌹
 
